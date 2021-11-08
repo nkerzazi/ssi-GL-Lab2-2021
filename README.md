@@ -2,6 +2,6 @@
 devoir 2 GL
 
 Livrable 2 par:
-xxx
+khadija salak
 yyyy
 
